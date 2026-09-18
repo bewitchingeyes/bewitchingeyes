@@ -20,7 +20,7 @@
   <img src="https://64.media.tumblr.com/a8c8f2b7ec7faa668e65c2f6e8bb1bb5/ada88593c812ef48-fc/s400x600/c2e654eacfbe16d981de485ff1fa89fe2ea206fc.pnj" alt="Flower Divider" width="70%" max-width="300" />
 </div>
       <div align="center"
-      <p> MADE BY <a href="https://github.com/fuxisword">@wakashion</a> #SHAMELESSPLUG</p>
+      <p> MADE BY <a href="https://github.com/wakashion">@wakashion</a> #SHAMELESSPLUG</p>
       </div>
 <br/>
     </td>
