@@ -13,7 +13,7 @@
 <br/>
 <div align="center">
   <p>hi i'm rose!! ☺︎ 21 ✧ she/they ✧ bisexual ✧ middle eastern!</p>
-  <p>i like light and night, lovebrush chronicles, hsr, enstars (in moderation), and more!</p>
+  <p>i like light and night, lovebrush chronicles, hsr, mhyk, enstars (in moderation), and more!</p>
   <p>dni is standard dni... no loli/shotacons, racists, etc etc- be logical you know what i mean by basic dni, pls dni hazbin/helluva and es fans int with caution i dont go here much anymore</p>
 </div>
   <div align="center">
